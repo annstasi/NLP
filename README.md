@@ -9,3 +9,4 @@
 • Выводы по эмоциональному окрасу  слов из рассказов Платонова  
 
 Презентация проекта: https://drive.google.com/file/d/12wDlIvBckJMfGrquRVxCFRxlZnMJtlbE/view?usp=sharing
+![Screenshot](p_cloud_clean.png)  
